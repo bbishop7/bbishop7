@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bbishop7
 - 👀 I’m interested in traveling, tattoos , and anything with a motor :)
-- 🌱 I’m currently learning computer science through CodeAcedemy
+- 🌱 I’m currently learning computer science through CodeAcademy
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me DM on IG @brandonbishop_ or email me bishopbrandonj@gmail.com
 
